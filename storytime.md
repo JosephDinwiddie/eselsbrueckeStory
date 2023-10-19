@@ -6,3 +6,4 @@ Herself and countless others would travel from across the world for their famous
 After her wild evening the only thing she was able to stomach was plain Brot.
 The next morning, she decided to visit Schloss Eltz, but first, she had to make a quick stop at the Baeckerei to pick up some fresh Gebaeck for the road.
 She ended her day driving her BMW to Eltz in style.
+But not before turning her Klimaanlage on max.
